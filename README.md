@@ -1,4 +1,8 @@
 # FitnessApp
 
-Uploading Simulator Screen Recording - iPhone 14 Pro - 2023-07-10 at 12.35.49.mov…
+
+https://github.com/MuhammettEren/FitnessApp/assets/97708233/eea066e4-49a1-4b9e-a6fb-61c25f63df3e
+
+
+
 
